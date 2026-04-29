@@ -1,4 +1,4 @@
-
+blue lock rivals Script exclusive offers the most advanced blue lock rivals Script, with auto-collect and god mode. Perfect for dominating any match.
 
 
 
